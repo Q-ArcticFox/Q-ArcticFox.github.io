@@ -1,1 +1,0 @@
-# Q-ArcticFox.github.io
